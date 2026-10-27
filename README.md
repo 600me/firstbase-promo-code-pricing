@@ -14,7 +14,7 @@ Firstbase offers company formation in Delaware or Wyoming and EIN setup, alongsi
 
 Treat the offering as a set of jobs to be done. Separate the setup work from ongoing administration, then decide which services you already have covered. A bundle becomes attractive when it replaces services you would genuinely buy — not when its list of features is longer.
 
-### 👉 [Explore Firstbase and check the applicable formation offer](https://go.272738.xyz/firstbase?src=gh_coupon_firstbase_cta1)
+### 👉 [Explore Firstbase and check the applicable formation offer](https://pay.mybskm.top/go/firstbase)
 
 ---
 
@@ -31,7 +31,7 @@ The page displays multiple promotional messages. They are **not combined into on
 
 Source: [Firstbase official pricing](https://www.firstbase.io/pricing). USD unless stated otherwise. Examples below are calculations, not customer results.
 
-### 👉 [Review Firstbase’s current package and billing terms](https://go.272738.xyz/firstbase?src=gh_coupon_firstbase_cta2)
+### 👉 [Review Firstbase’s current package and billing terms](https://pay.mybskm.top/go/firstbase)
 
 ---
 
@@ -45,7 +45,7 @@ For an illustrative budget, $99 of setup plus a $2,388 annual bundle totals **$2
 
 A promo code matters only after scope is comparable. Check included work, renewal charges, cancellation terms, and optional add-ons in the actual offer. Do not let a countdown or crossed-out price choose the service package for you.
 
-### 👉 [Compare your first-year costs with the live Firstbase offer](https://go.272738.xyz/firstbase?src=gh_coupon_firstbase_cta3)
+### 👉 [Compare your first-year costs with the live Firstbase offer](https://pay.mybskm.top/go/firstbase)
 
 ---
 
@@ -69,4 +69,4 @@ Anyone who already has some administrative work covered. Duplicating a service c
 
 ---
 
-### 👉 [See Firstbase pricing and build your complete budget](https://go.272738.xyz/firstbase?src=gh_coupon_firstbase_cta4)
+### 👉 [See Firstbase pricing and build your complete budget](https://pay.mybskm.top/go/firstbase)
